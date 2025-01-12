@@ -9,7 +9,7 @@
 
 <p align="center"><a href="https://t.me/JARVIS_V2"><img src="https://i.imghippo.com/files/ub3360KUk.jpg" width="600"></a></p>
 
-<h3> <img src="https://readme-typing-svg.herokuapp.com?color=00BFFF&width=620&lines=✨+🦋+💗+ᴛʜɪs+ɪs+ᴛʜᴇ+ᴍᴏsᴛ+ᴀᴅᴠᴀɴᴄᴇ+ᴍᴜsɪᴄ;ᴍᴀɴᴀɢᴇᴍᴇɴᴛ+ᴀɪ+ʀᴏʙᴏᴛ+🔥+🥀;𝓑𝓨+𝓙𝓐𝓡𝓥𝓘𝓢2.𝓞+✨+🦋+💗+"></b></h3>
+<h3> <img src="https://readme-typing-svg.herokuapp.com?color=00BFFF&width=620&lines=✨+🦋+💗+ᴛʜɪs+ɪs+ᴛʜᴇ+ᴍᴏsᴛ+ᴀᴅᴠᴀɴᴄᴇ+ᴍᴜsɪᴄ;ᴍᴀɴᴀɢᴇᴍᴇɴᴛ+ᴀɪ+ʀᴏʙᴏᴛ+🔥+🥀;ʙʏ+Kᴀᴀʟ+✨+🦋+💗+"></b></h3>
 
 <h2 align="center">
     ─「 💗sᴛʀɪɴɢ sᴇssɪᴏɴ🦋 」─
